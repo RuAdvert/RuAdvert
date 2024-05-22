@@ -2,7 +2,7 @@
 - 👀 I’m interested in: ... photo modeling
 - 🌱 I’m currently learning: ... accounting 
 - 💞️ I’m looking to collaborate on: ...advertising company 
-- 📫 How to reach me: ... 251946728957 
+- 📫 How to reach me: ... +251946728957 
 - 😄 Pronouns: ...Ruhama
 - ⚡ Fun fact: ...
 
